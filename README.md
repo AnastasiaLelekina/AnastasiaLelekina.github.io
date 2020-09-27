@@ -1,4 +1,3 @@
-# AnastasiaLelekina.github.io
 # **Twilight Sparkle**
 ![](https://avatars.mds.yandex.net/get-pdb/909209/d73cc62d-6ddf-4298-be25-b34f420c4122/s1200)
 ## **Факты**
